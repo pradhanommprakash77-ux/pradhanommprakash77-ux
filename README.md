@@ -77,7 +77,7 @@ https://github.com/pradhanommprakash77
 
 📧 Email
 
-ommprakashpradhan@email.com
+pradhanommprakash77@email.com
 
 🔗 LinkedIn
 
