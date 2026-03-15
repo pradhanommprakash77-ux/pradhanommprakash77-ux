@@ -1,6 +1,6 @@
 👋 Hi, I'm Ommprakash Pradhan
 
-🚀 Full Stack Developer | AI Enthusiast | UI/UX Designer
+🚀 Exploring Full Stack 
 📍 Odisha, India
 💡 Passionate about building AI systems, scalable web applications, and modern digital products.
 
